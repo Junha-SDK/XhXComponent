@@ -16,9 +16,9 @@
 <br>
 그럼 이만
 <br>
-<img width="653" alt="스크린샷 2025-03-29 오전 11 37 48" src="https://github.com/user-attachments/assets/4a044832-510b-49d0-bdd8-a6509d4ad0ec" />
+<img width="645" alt="스크린샷 2025-03-29 오전 11 42 36" src="https://github.com/user-attachments/assets/fe88b551-2d47-4bf8-8f3b-31fde7be2fd7" />
 <br>
-건강하십쇼.
+건강하십쇼. 사요나라! ¯\( ˘–˘ )/¯
 <br>
 <img width="645" alt="스크린샷 2025-03-29 오전 11 38 12" src="https://github.com/user-attachments/assets/0c7db726-6043-45e4-b9df-a487b82be49c" />
 <br>
